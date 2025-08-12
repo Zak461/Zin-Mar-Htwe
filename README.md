@@ -1,2 +1,2 @@
 # Zin-Mar-Htwe
-## About that control
+## About this course
